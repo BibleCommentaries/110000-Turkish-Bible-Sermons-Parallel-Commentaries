@@ -1,0 +1,1 @@
+# 110000-Turkish-Bible-Sermons-Parallel-Commentaries
